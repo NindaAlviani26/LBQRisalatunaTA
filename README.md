@@ -1,0 +1,2 @@
+# LBQRisalatunaTA
+Ini TA Ninda 
